@@ -3,7 +3,7 @@
 
 **1 Meow!**
 ------------------------------------------
-"It's still here," said Jack.
+`"It's still here," said Jack.
   "It looks empty," said Annie.
   Jack and his seven-year-old sister 
 gazed up at a very tall oak tree. At the
@@ -57,4 +57,6 @@ Jack said loudly.
 leaves rattled.
   "Come on!" called Annie.
   Jack went back to the big oak tree. 
-He grabbed 
+He grabbed the rope ladder and climb up.
+  At the top he crawled through the hole 
+in the wooden floor. He `
