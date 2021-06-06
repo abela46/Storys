@@ -56,4 +56,5 @@ Jack said loudly.
   A breeze swept through the woods. The 
 leaves rattled.
   "Come on!" called Annie.
-  Jack went back 
+  Jack went back to the big oak tree. 
+He grabbed 
