@@ -43,4 +43,17 @@ bushes.
   Was the mysterious person 
 watching him now? The person whose name 
 began with M?
-  Maybe M wanted the gold medallion back. The one Jack had found on their dinosaur adventure.
+  Maybe M wanted the gold medallion back. 
+The one Jack had found on their dinosaur 
+adventure.
+Maybe M wanted the leather bookmark
+back. The one from the castle book.
+  There was an M on the medallion.
+And an M on the bookmark. But what did M
+stand for?
+  "Tomorrow I'll bring everything back,"
+Jack said loudly.
+  A breeze swept through the woods. The 
+leaves rattled.
+  "Come on!" called Annie.
+  Jack went back 
