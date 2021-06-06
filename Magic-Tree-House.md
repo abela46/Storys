@@ -3,7 +3,6 @@
 
 **1 Meow!**
 ------------------------------------------
-*Page 1*
 "It's still here," said Jack.
   "It looks empty," said Annie.
   Jack and his seven-year-old sister 
@@ -17,7 +16,6 @@ noise?"
   "I heard a noise," Jack said. He looked
 around. "It sounded like someone coughing."
 
-*Page 2*
   "I didn't hear 
 anything," said Annie.
 "Come on. Let's go 
@@ -28,7 +26,6 @@ started climbing.
   Jack tiptoed over to 
 a clump of bushes.
 
-*Page 3*
 He pushed aside a small branch.
   "Hello?" he said. "Anybody 
 there?" 
