@@ -46,5 +46,4 @@ bushes.
   Was the mysterious person 
 watching him now? The person whose name 
 began with M?
-  Maybe M wanted the gold 
-medallion back. The one Jack had found on their dinosaur adventure
+  Maybe M wanted the gold medallion back. The one Jack had found on their dinosaur adventure.
